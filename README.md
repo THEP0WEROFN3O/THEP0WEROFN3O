@@ -20,7 +20,7 @@ ${\textsf{\color{#C54B77}☆}}$ ${\textsf{\color{#C54B77}ˇ ‿ @}}$ ${\textsf{\
 
 ${\textsf{\color{#5FA642}☆}}$  ${\textsf{\color{#829A7F}RP please}}$  ${\textsf{\color{#A58FBC}int!}}$   ${\textsf{\color{#AF76CD}under 14}}$  ${\textsf{\color{#A051B0}please}}$  ${\textsf{\color{#912B94}dni!}}$  ${\textsf{\color{#639a53}}}$  ${\textsf{\color{#7e9a53}}}$ 
 
-${\textsf{\color{#C54B77}☆}}$  ${\textsf{\color{#537f9a}usually}}$  ${\textsf{\color{#539a8f}offtab}}$   ${\textsf{\color{#539a7d}ﾉ}}$  ${\textsf{\color{#539a64}afk}}$  ${\textsf{\color{#579a53}whisper}}$  ${\textsf{\color{#639a53}to}}$  ${\textsf{\color{#7e9a53}interact!!}}$ 
+${\textsf{\color{#C54B77}☆}}$  ${\textsf{\color{#D06588}DNI if}}$  ${\textsf{\color{#DB7E99}:}}$   ${\textsf{\color{#E698AA}under 14,}}$  ${\textsf{\color{#E8A59D}or proship.}}$  ${\textsf{\color{#E0A572}i}}$  ${\textsf{\color{#D9A446}block}}$  ${\textsf{\color{#D1A41B}freely!}}$ 
 <p align="center">
   <img src="https://files.catbox.moe/0eh1dx.gif">
 </p>
